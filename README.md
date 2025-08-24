@@ -23,3 +23,4 @@ If you need anything from me, my DMs are open! You can contact me from [Discord]
 - [VS Farjd](https://gamebanana.com/mods/604500) (Programmer)
 - [VS Slenderman](https://gamebanana.com/mods/314201) (Programmer)
 - [Gamebanana Contributions Page](https://gamebanana.com/members/submissions/contributions/2001960)
+- [Master GC Studios](https://gamebanana.com/studios/38440)
