@@ -9,6 +9,7 @@ If you need anything from me, my DMs are open! You can contact me from [Discord]
 - Please note that I'm busy with school so I apologize in advance if I couldn't get back to you.
 
 ## Friday Night Funkin' Mods/Projects I work on: 
+- [DDTO+ Hud Script](https://gamebanana.com/tools/12677) (Owner and Programmer)
 - [Exospheric Corruption](https://x.com/Exozphere) (Co-Director and Lead Programmer)
 - [Funknencion Cube](https://gamebanana.com/mods/407689) (Co-Director and Programmer) 
 - [VS Herobrine](https://gamebanana.com/mods/329840) (Lead Programmer)
