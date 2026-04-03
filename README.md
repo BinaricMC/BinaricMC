@@ -3,7 +3,7 @@ Hello, I'm MC! Thanks for visiting my profile. I'm a programmer that works on va
 
 PFP by [@sumalyart](https://x.com/sumalyart)  
 
-If you need anything from me, my DMs are open. You can contact me from [Discord](https://discord.com/users/493176577270743041) or from [Twitter](https://x.com/BinaricMC). Don’t be afraid to ask! 
+If you need anything from me, my DMs are open. You can contact me from [Discord](https://discord.com/users/493176577270743041) or from [Twitter](https://x.com/BinaricMC).
 - I try to respond as fast I can, please don't hesitate to DM back incase I forgot to respond to you. 
 - Please also try to be patient with me as I tend to not understand things fast enough.
 - Please note that I'm busy with school so I apologize in advance if I couldn't get back to you.
